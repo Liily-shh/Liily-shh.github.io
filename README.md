@@ -1,1 +1,2 @@
-My Extra Creditt Website
+My Extra Credit Website
+See My Webpage:
